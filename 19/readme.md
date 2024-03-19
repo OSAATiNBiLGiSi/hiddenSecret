@@ -1,6 +1,9 @@
 findings SUBHANALLAH!
+
 + : var
+
 _ : yok
+
 || : ya da
 
 ________________________________
