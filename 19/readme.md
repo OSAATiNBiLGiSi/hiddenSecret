@@ -51,13 +51,13 @@ Sayfa 7 - Bilim (ilk üç satır hariç) > Toplam 2147 adet E, L ve R Harfi İç
 
 Sayfa 10 - Hikmet (ilk satır ya da 2. satır hariç) > Toplam 1520 adet E, L ve R Harfi İçerir Yani Tam 19 x 80 Tane !
 
-Sayfa 14 - Beyin (tüm satırlar dahil) > Toplam 2261 adet E, L ve R Harfi İçerir Yani Tam 19 x 119 Tane !
+Sayfa 14 - Beyin > Toplam 2261 adet E, L ve R Harfi İçerir Yani Tam 19 x 119 Tane !
 
 Sayfa 15 - Kimyager (3. satır ile (birinci ya da 2. satırlar) hariç) > Toplam 969 adet E, L ve R Harfi İçerir Yani Tam 19 x 51 Tane !
 
 Sayfa 19 - Emanet (3. satır ile (birinci ya da 2. satırlar) hariç) > Toplam 1140 adet E, L ve R Harfi İçerir Yani Tam 19 x 60 Tane !
 
-Sayfa 20 - Rahim (tüm satırlar dahil) > Toplam 4332 adet E, L ve R Harfi İçerir Yani Tam 19 x 19 x 12 Tane !
+Sayfa 20 - Rahim > Toplam 4332 adet E, L ve R Harfi İçerir Yani Tam 19 x 19 x 12 Tane !
 
 _______________ 4- [elmr] _______________
 
@@ -71,7 +71,13 @@ Sayfa 13 - Musa (birinci satır ya da 2. satır hariç) > Toplam 3553 adet E, L,
 
 _______________ 5- [khyas] _______________
 
+Sayfa 5 - Kul (ilk 3 satır hariç) > Toplam 1026 adet K, H, Y, A ve S Harfi İçerir Yani Tam 19 x 54 Tane !
 
+Sayfa 9 - Çınar > Toplam 2280 adet K, H, Y, A ve S Harfi İçerir Yani Tam 19 x 19 + 1919 Tane !
+
+Sayfa 12 - Çağrı (1. ve 3. satırlar hariç) > Toplam 1045 adet K, H, Y, A ve S Harfi İçerir Yani Tam 19 x 55 Tane !
+
+Sayfa 16 - Diriliş > Toplam 1729 adet K, H, Y, A ve S Harfi İçerir Yani Tam 19 x 91 Tane !
 
 _______________ 6- [th] _______________
 
