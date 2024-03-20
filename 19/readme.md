@@ -132,7 +132,27 @@ Sayfa 6 - Müslüman (ilk satır ya da 2. satır hariç) > Toplam 133 adet H ve 
 
 Sayfa 13 - Musa (ilk 2 satır hariç) > Toplam 608 adet H ve M Harfi İçerir Yani Tam 19 x 32 Tane !
 
-_______________ 12- ask _______________
+_______________ 12- [ask] _______________
+
+Sayfa 4 - Zikir > Toplam 627 adet A, S ve K Harfi İçerir Yani Tam 19 x 33 Tane !
+
+Sayfa 9 - Çınar (ilk satır hariç) > Toplam 1881 adet A, S ve K Harfi İçerir Yani Tam 19 x 99 Tane !
+
+Sayfa 10 - Hikmet (ilk satır hariç) > Toplam 1140 adet A, S ve K Harfi İçerir Yani Tam 19 x 60 Tane !
+
+Sayfa 12 - Çağrı (ilk 3 satır hariç) > Toplam 855 adet A, S ve K Harfi İçerir Yani Tam 19 x 45 Tane !
+
+Sayfa 13 - Musa (2. satır hariç) > Toplam 2394 adet A, S ve K Harfi İçerir Yani Tam 19 x 126 Tane !
+
+Sayfa 16 - Diriliş (1. satır hariç) > Toplam 1311 adet A, S ve K Harfi İçerir Yani Tam 19 x 69 Tane !
+
+Sayfa 17 - Bilge (1. satır hariç) > Toplam 513 adet A, S ve K Harfi İçerir Yani Tam 19 x 27 Tane !
+
+Sayfa 18 - Şahit (3. satır hariç) > Toplam 931 adet A, S ve K Harfi İçerir Yani Tam 19 x 49 Tane !
+
+Sayfa 19 - Emanet (1. satır hariç) > Toplam 760 adet A, S ve K Harfi İçerir Yani Tam 19 x 40 Tane !
+
+Sayfa 20 - Rahim > Toplam 3040 adet A, S ve K Harfi İçerir Yani Tam 19 x 160 Tane !
 
 _______________ 13- [k] _______________
 
