@@ -1,4 +1,6 @@
-findings SUBHANALLAH!
+findings SUBHANALLAH! MAŞALLAH! LA KUVVETE İLLA BİLLAH! ELHAMDÜLİLLAH! ŞÜKÜRLER OLSUN ALLAH'A!
+
+99 durumda 1/19^100 ‘den düşük ihtimalli 19 Mucizesi :
 
 + : var
 
