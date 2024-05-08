@@ -184,3 +184,13 @@ Sayfa 8 - Namaz (İlk satır hariç) > 247 adet N Harfi İçerir Yani Tam 19 x 1
 Sayfa 9 - Çınar (ilk 2 satır hariç) > 893 adet N Harfi İçerir Yani Tam 19 x 47 Tane !
 
 Sayfa 16 - Diriliş (zaten ilk 2 satır hiç n harfi içermiyor) > 570 Adet N Harfi İçerir Yani Tam 19 x 30 Tane !
+
+<hr></hr>
+
+[youtu.be/0c9Z5YAGZn4](https://www.youtube.com/watch?v=0c9Z5YAGZn4)
+
+23:28 "Sen ve beraberindekiler gemiye yerleştiğinizde, ‘Bizi o zalim halktan kurtaran ALLAH'a övgüler olsun,' de."
+
+[Oku.FurkanHikmet.com/1](http://Oku.FurkanHikmet.com/1)
+
+1:7- O halde gemiyi yap, sana gelmiş olanın Nuh'a da geldiğinden ve Nuh’un yaptığı geminin, senin bildirdiğinden bir farkı yoktur. Nuh’a vahyettiğimiz, kuşkusuz senin içinde geçerlidir. Zalimler için Bana başvurma ve cahillerden olma!
