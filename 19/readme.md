@@ -346,7 +346,7 @@ Rahman ve Rahim olan ALLAH’ın adıyla;
  
 [Onurlu Kuran 10:104](http://OnurluKuran.com/10#104) De: "Ey insanlar, eğer dinimden kuşku içindeyseniz; artık etmiyorum kimselere kulluk ettiğiniz yanından ALLAH 'ın. Velakin Kulluk Ediyorum ALLAH'a Ki Vefat Ettirecek Sizi Ve Emredildim Olmaya İman Edenlerden!
  
-[Onurlu Kuran 10:105](http://OnurluKuran.com/10#105) Ve doğrult yüzünü dine hanif olarak ve olmaa müşriklerden.
+[Onurlu Kuran 10:105](http://OnurluKuran.com/10#105) Ve doğrult yüzünü dine hanif olarak ve olmaa müşriklerden
  
 [Onurlu Kuran 10:106](http://OnurluKuran.com/10#106) "TANRI’yı bırakıp, sana yarar ve zarar veremeyenleri çağırma. Böyle yaparsan o zaman zalimlerden olursun." 
  
