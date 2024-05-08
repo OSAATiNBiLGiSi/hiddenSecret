@@ -6,11 +6,9 @@ A Blessed Scripture:
 
 Simple To Understand!
 
-Impossible to Imitate!
+Impossible to [Imitate](https://www.youtube.com/watch?v=vX3riVsnzqA) !
 
 Over [Oku.FurkanHikmet.com](https://Oku.FurkanHikmet.com) is 19 ! (74:30)
-
-
 
 ![https://Oku.FurkanHikmet.com](./asa.jpg)
 
