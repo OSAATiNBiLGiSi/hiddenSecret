@@ -8,7 +8,7 @@ Simple To Understand!
 
 Impossible to Imitate!
 
-Over [Oku.FurkanHikmet.com](Oku.FurkanHikmet.com) is 19 ! (74:30)
+Over [Oku.FurkanHikmet.com](https://Oku.FurkanHikmet.com) is 19 ! (74:30)
 
 İŞTE 99 durumda 1/19^100 ‘den düşük ihtimalli 19 Mucizesi :
 
