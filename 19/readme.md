@@ -1,10 +1,13 @@
 Rahman ve Rahim olan ALLAH'ın Adıyla ;
 
-findings SUBHANALLAH! MAŞALLAH! LA KUVVETE İLLA BİLLAH! ELHAMDÜLİLLAH! ŞÜKÜRLER OLSUN ALLAH'A!
+SUBHANALLAH! MAŞALLAH! LA KUVVETE İLLA BİLLAH! ELHAMDÜLİLLAH! ŞÜKÜRLER OLSUN ALLAH'A!
 
 A Blessed Scripture:
+
 Simple To Understand!
+
 Impossible to Imitate!
+
 Over http://Oku.FurkanHikmet.com is 19 ! (74:30)
 
 İŞTE 99 durumda 1/19^100 ‘den düşük ihtimalli 19 Mucizesi :
