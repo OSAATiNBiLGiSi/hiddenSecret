@@ -2,13 +2,13 @@ Rahman ve Rahim olan ALLAH'ın Adıyla ;
 
 SUBHANALLAH! MAŞALLAH! LA KUVVETE İLLA BİLLAH! ELHAMDÜLİLLAH! ŞÜKÜRLER OLSUN ALLAH'A!
 
-A Blessed Scripture:
+A Blessed [Scripture](https://Oku.FurkanHikmet.com) :
 
 Simple To Understand!
 
 Impossible to [Imitate](https://www.youtube.com/watch?v=vX3riVsnzqA) !
 
-Over [Oku.FurkanHikmet.com](https://Oku.FurkanHikmet.com) is 19 ! (74:30)
+Over [Oku.FurkanHikmet.com](https://Oku.FurkanHikmet.com) is 19 ! ( [74:30](https://www.youtube.com/watch?v=vX3riVsnzqA) )
 
 ![https://Oku.FurkanHikmet.com](./asa.jpg)
 
