@@ -189,8 +189,178 @@ Sayfa 16 - Diriliş (zaten ilk 2 satır hiç n harfi içermiyor) > 570 Adet N Ha
 
 [youtu.be/0c9Z5YAGZn4](https://www.youtube.com/watch?v=0c9Z5YAGZn4)
 
-23:28 "Sen ve beraberindekiler gemiye yerleştiğinizde, ‘Bizi o zalim halktan kurtaran ALLAH'a övgüler olsun,' de."
+[Onurlu Kuran 23:28](http://OnurluKuran.com/23#28) "Sen ve beraberindekiler gemiye yerleştiğinizde, ‘Bizi o zalim halktan kurtaran ALLAH'a övgüler olsun,' de."
+
 
 [Oku.FurkanHikmet.com/1](http://Oku.FurkanHikmet.com/1)
 
-1:7- O halde gemiyi yap, sana gelmiş olanın Nuh'a da geldiğinden ve Nuh’un yaptığı geminin, senin bildirdiğinden bir farkı yoktur. Nuh’a vahyettiğimiz, kuşkusuz senin içinde geçerlidir. Zalimler için Bana başvurma ve cahillerden olma!
+
+[Furkan Hikmet 1:7](http://Oku.FurkanHikmet.com/1#7)- O halde gemiyi yap, sana gelmiş olanın Nuh'a da geldiğinden ve Nuh’un yaptığı geminin, senin bildirdiğinden bir farkı yoktur. Nuh’a vahyettiğimiz, kuşkusuz senin içinde geçerlidir. Zalimler için Bana başvurma ve cahillerden olma!
+
+
+[Sayfa 1 - EMİR](http://Oku.FurkanHikmet.com/1)
+ 
+EMİR 
+ 
+Rahman ve Rahim olan ALLAH’ın adıyla; 
+
+[1](http://Oku.FurkanHikmet.com/1#1)- Hamd, ceza gününün Malikine, Selam’da seçkin kıldığı kullarınadır. 
+
+[2](http://Oku.FurkanHikmet.com/1#2)- Hiç kuşkusuz sen, gönderilenlerdensin. 
+ 
+[3](http://Oku.FurkanHikmet.com/1#3)- Doğru yol üzerindesin. 
+ 
+[4](http://Oku.FurkanHikmet.com/1#4)- Yoldan çıkan topluluğu, azap’tan önce uyarmak ve ALLAH’ın yoluna ulaştırmak için gönderildin. 
+ 
+[5](http://Oku.FurkanHikmet.com/1#5)- Azabın vakti yaklaşmadıkça, Rabbin içlerinden uyarması için birini gönderecek değildi. Ancak süresi tayin edilen o vakit, yakınlaştıkça yakınlaşmıştır. 
+ 
+[6](http://Oku.FurkanHikmet.com/1#6)- Her kişi için belirlenen bir süre olduğu gibi, her toplum için de belirlenen bir süre vardır. 
+ 
+[7](http://Oku.FurkanHikmet.com/1#7)- O halde gemiyi yap, sana gelmiş olanın Nuh'a da geldiğinden ve Nuh’un yaptığı geminin, senin bildirdiğinden bir farkı yoktur. Nuh’a vahyettiğimiz, kuşkusuz senin içinde geçerlidir. Zalimler için Bana başvurma ve cahillerden olma! 
+ 
+[8](http://Oku.FurkanHikmet.com/1#8)- Kuşkusuz sana gelmeden önce, kitap nedir iman nedir bilmezdin. ALLAH, hidayet etmeseydi asla iman edeceklerden de değildin. Hamd, doğru yola eriştiren ALLAH’a dır. O, dilediğini seçer ve doğru yola eriştirir. 
+ 
+[9](http://Oku.FurkanHikmet.com/1#9)- Sapkınlara gelince, onları ne sen saptırdın nede senin yaptıkların, ataları saptı ve kendilerinden sonra gelenleri de saptırdı.
+
+[10](http://Oku.FurkanHikmet.com/1#10)- Kendisine doğru yol apaçık gelmişken, kendisine gerçek gelmişken, onu yalan sayandan ve kendisine gelen gerçekten yüz çevirenden daha zalim kimdir? 
+ 
+[11](http://Oku.FurkanHikmet.com/1#11)- And olsun ki seni göndermeden önce azapla yakalamış olsaydık “Bize de bir uyarıcı gönderilseydi de, uyduğumuz yolun yanlış olduğunu anlasaydık ve ayetlerine iman etseydik Rabbimiz” derler ve kendilerine haksızlık edildiğini iddia ederlerdi. Rabbin, haksızlıktan münezzehtir, merhametlidir. 
+ 
+[12](http://Oku.FurkanHikmet.com/1#12)- ALLAH kendisine ortak koşanları, başka ilahlar arayıp edinen kimseleri, doğru yola eriştirecek değildir. İnsanlar, bilgisizce ortak koşup dururlarken, nasıl doğru yola eriştirebilir? 
+ 
+[13](http://Oku.FurkanHikmet.com/1#13)- O, zalim de değildir, herkes ancak kendi yapıp ettiğinin cezasını çeksin istemiştir. Adil’dir. 
+ 
+[14](http://Oku.FurkanHikmet.com/1#14)- Doğrusu mükafat bakımından da ceza bakımından da Dünya hayatı, her türlü ekine hazır verimli bir toprak gibidir. 
+ 
+[15](http://Oku.FurkanHikmet.com/1#15)- İyilik ekenler iyilik ve kötülük ekenler de ancak ektikleri kötülükleri biçeceklerdir. 
+ 
+[16](http://Oku.FurkanHikmet.com/1#16)- Vahyin ne olduğunu soracak olurlarsa, vahiy, Rabbin tarafından verilmiş olan bir ilim’dir, bilgidir. Rabbinin sevgisi, rahmeti ve lütfu çok geniştir. O, ilmini arttırır, öğretir. 
+ 
+[17](http://Oku.FurkanHikmet.com/1#17)- O, daima iyilikten ve güzellikten yana olan, suçlulardan ise adaletiyle intikam alandır. 
+ 
+[18](http://Oku.FurkanHikmet.com/1#18)- Rabbin, geceye de gündüze de tanıktır. O’nun azabı, zalimlerden uzak değildir. Her topluma içlerinden mutlaka bir uyarıcı göndermiştir. Her toplumda kendilerine gelen uyarıcıyı yalanlamıştır. Ama yalanlayanların sonu nasıl oldu bir bak! 
+ 
+[19](http://Oku.FurkanHikmet.com/1#19)- Geceyi izleyen gündüze yemin olsun ki, gönderilenler de, gönderdiklerimiz de, hesaba çekileceklerdir. 
+
+[20](http://Oku.FurkanHikmet.com/1#20)- İnsanlara, Rableri katından hangi yeni uyarı gelmiş olmasın ki, alaya alıp yüz çevirmiş olmasınlar. O, her topluluğa içlerinden anlasınlar diye, kendi dillerin de bir uyarıcı seçip gönderendir. 
+ 
+[21](http://Oku.FurkanHikmet.com/1#21)- Resul’ünü, İslam’ı bütün dinlere üstün kılmak üzere gerçekle gönderen ALLAH’tır. O, Halim’dir. 
+ 
+[22](http://Oku.FurkanHikmet.com/1#22)- Gönderdiğine yapılan iyilik, O’na yapılmış sayılır. 
+ 
+[23](http://Oku.FurkanHikmet.com/1#23)- Gönderdiğine yapılan kötülük de O’na yapılmış sayılır. 
+ 
+[24](http://Oku.FurkanHikmet.com/1#24)- Gönderdiğine iman etmek, O’na iman etmektir, inkar etmek de O’nu inkar etmektir. 
+ 
+[25](http://Oku.FurkanHikmet.com/1#25)- O’nun ne yapılan iyiliğe ne kötülüğe ne iman’a nede inkar’a bir ihtiyacı yoktur. Gani’dir. Bu, sadece bir denemedir. O’na ulaşan yaptıklarınız değil, takvanızdır. 
+ 
+[26](http://Oku.FurkanHikmet.com/1#26)- Bu, imtihanların en güzelidir. Mükafat bakımından da ceza bakımından da en yüksek payedir. 
+ 
+[27](http://Oku.FurkanHikmet.com/1#27)- Kuşkusuz O, her şeyden çok iyi haberdar olan, kullarının yaptıklarını çok iyi bilen ve çok iyi görüp gözetendir. O, sana da, senden öncekilere de böyle vahyetmiştir. 
+ 
+[28](http://Oku.FurkanHikmet.com/1#28)- İşte bunlar, sana verilen kitabın hikmetli sahifeleridir. 
+ 
+[29](http://Oku.FurkanHikmet.com/1#29)- Ey İnsanlar! Hepinizin Rabbi, yerleri, gökleri ve ikisi arasında bulunanları yaratan ALLAH’tır.
+
+[30](http://Oku.FurkanHikmet.com/1#30)- Gerçek, ALLAH’tan gelendir. Kim O’nun indirdiği gerçeklerin dışındakini din edinmişse, and olsun ki ALLAH’tan başka ilah edinmiştir. Hepinizin Rabbi, bir’dir, tek’tir. 
+ 
+[31](http://Oku.FurkanHikmet.com/1#31)- Din’e uymanızı emreden ALLAH’tır. O, tek bir İlah’tır. 
+ 
+[32](http://Oku.FurkanHikmet.com/1#32)- Din, yalnız ALLAH’ın indirdiğidir. Geri kalanı uydurmadır, sapıklıktır. 
+ 
+[33](http://Oku.FurkanHikmet.com/1#33)- Baldırların açılıp korkudan dizlerin birbirine karışıp titreyeceği gün, baba oğlunu, oğul da babasını tanımayacaktır. O gün, oğul baba’yı ve baba’da oğlu suçlayacaktır. Liderler toplumlarını, toplumlar liderlerini, puta tapanlar taptıkları putlarını ve putlar da kendilerine tapanları suçlayacaktır. 
+ 
+[34](http://Oku.FurkanHikmet.com/1#34)- O halde siz, yalnız Rabbinizden size indirilene uyun ve yalnız ALLAH’a güvenip dayanmış olarak huzura gelin. İnananlar, yalnız tek ALLAH’a güvenip dayananlardır.
+
+[35](http://Oku.FurkanHikmet.com/1#35)- ALLAH, size şefaatçi olarak da, dost olarak da, yardımcı olarak da fazlasıyla yeterlidir. O, her türlü noksanlıktan münezzehtir. 
+ 
+[36](http://Oku.FurkanHikmet.com/1#36)- ALLAH buyurdu “Ben onlara çok yakınım. Bana dua ettiği vakit, dua edenin dileğine karşılık veririm. O halde Benim davetime uysunlar ve Bana inansınlar ki doğru yolu bulsunlar.”
+
+
+
+[Onurlu Kuran 10:71](http://OnurluKuran.com/10#71) Onlara, Nuh'un haberini anlat. Hani o halkına: "Ey halkım! Eğer aranızda durmam ve ALLAH'ın ayetlerini hatırlatmam size ağır geliyorsa, bilin ki ben yalnızca ALLAH'a güveniyorum. Öyleyse yapacağınızı yapmak için şirk koştuklarınızla toplanıp karar verin. Sonra ne yapacaksanız yapın. Sonra bana fırsat vermeden aldığınız kararı hemen uygulayın!" demişti.
+
+[Onurlu Kuran 10:72](http://OnurluKuran.com/10#72) "Eğer yüz çevirirseniz, siz bilirsiniz. Yaptığım işe karşılık sizden bir ücret istemiş değilim. Benim ücretim ancak ALLAH'a aittir. Ben, Müslümanlardan olmakla emrolundum."
+
+[Onurlu Kuran 10:73](http://OnurluKuran.com/10#73) Onu yalanladılar. Biz de onu ve onunla beraber gemide bulunanları kurtardık. Ve onları yeryüzünün halifeleri yaptık. Ayetlerimizi yalanlayanları da boğduk. Bak! Uyarılanların sonu nice oldu!
+
+[Onurlu Kuran 10:74](http://OnurluKuran.com/10#74) Sonra onun arkasından, resulleri halklarına gönderdik. Onlar, halklarına kanıt içeren açık belgelerle geldiler. Daha önce yalanladıkları şeylere inanmak istemediler. İşte haddi aşanların kalplerini böyle mühürleriz.
+
+[Onurlu Kuran 10:75](http://OnurluKuran.com/10#75) Sonra onların arkasından Musa ve Harun'u ayetlerimizle Firavun ve melelerine gönderdik. Ancak onlar büyüklendiler, suçlu bir halk oldular.
+
+[Onurlu Kuran 10:76](http://OnurluKuran.com/10#76) Onlara, Tarafımızdan Hak geldiği zaman: "Şüphesiz bu apaçık bir sihirdir." dediler.
+
+[Onurlu Kuran 10:77](http://OnurluKuran.com/10#77) Musa dedi: "Hak için size geldiğinde: "sihirdir bu" mu diyorsunuz? Ve eremez başarıya sihirbazlar."
+
+[Onurlu Kuran 10:78](http://OnurluKuran.com/10#78) Dediler: "Sen; bizi, atalarımızı üzerinde bulduğumuz yoldan çevirmek ve ikiniz için olsun büyüklük yeryüzünde diye mi geldin? Ve değiliz olanlar ikiniz için inananlar ile.
+
+[Onurlu Kuran 10:79](http://OnurluKuran.com/10#79) Firavun, "Tüm uzman büyücüleri bana getirin!" dedi. 
+
+[Onurlu Kuran 10:80](http://OnurluKuran.com/10#80) Büyücüler gelince, Musa onlara, "Ne atacaksanız atın!" dedi.
+
+[Onurlu Kuran 10:81](http://OnurluKuran.com/10#81) Onlar atınca, Musa: "Sizin bu getirdiğiniz bir büyüdür. TANRI elbette onu boşa çıkaracaktır. TANRI bozguncuların işlerini düzeltmez" dedi. 
+ 
+[Onurlu Kuran 10:82](http://OnurluKuran.com/10#82) TANRI sözleriyle hakkı gerçekleştirir. Suçlular hoşlanmasa da… 
+ 
+[Onurlu Kuran 10:83](http://OnurluKuran.com/10#83) Firavun ve erkanının işkence ve baskısından korktukları için Musa'ya, halkından ancak bir kaç kişi inandı. Firavun, yeryüzünde haddi çok aşan bir zorba idi. 
+ 
+[Onurlu Kuran 10:84](http://OnurluKuran.com/10#84) Musa: "Ey halkım, eğer gerçekten TANRI’ya inanmış ve O'na teslim olmuş iseniz O'na güvenin." 
+ 
+[Onurlu Kuran 10:85](http://OnurluKuran.com/10#85) Dediler ki: "TANRI’ya güvendik. Efendimiz, bizi zalim halkın baskısına maruz bırakma." 
+ 
+[Onurlu Kuran 10:86](http://OnurluKuran.com/10#86) "Rahmetinle bizi inkârcı halktan kurtar." 
+ 
+[Onurlu Kuran 10:87](http://OnurluKuran.com/10#87) Musa'ya ve kardeşine: "Halkınız için Mısır'da evler hazırlayın. Evlerinizi odak noktası yapın ve namazı gözetin. İnananları müjdeleyin" diye vahyettik. 
+ 
+[Onurlu Kuran 10:88](http://OnurluKuran.com/10#88) Musa dedi ki: "Efendimiz, sen Firavun ve konseyine dünya hayatında lüks ve mal verdin. Efendimiz, senin yolundan saptırsınlar diye mi? Efendimiz, onların mallarını silip süpür ve acı azabı görünceye kadar inanmasınlar diye kalplerini katılaştır." 
+ 
+[Onurlu Kuran 10:89](http://OnurluKuran.com/10#89) Dedi ki: "İkinizin duası kabul edilmiştir. Doğru olun ve bilmeyenlerin yolunu izlemeyin." 
+
+[Onurlu Kuran 10:90](http://OnurluKuran.com/10#90) İsrailoğullarını denizden geçirdik. Firavun ve ordusu ise küstahça ve düşmanca arkalarına düştü. Boğulmak üzereyken, "İsrailoğullarının inandığından başka ilah olmadığına inandım, ben Müslümanım" dedi. 
+ 
+[Onurlu Kuran 10:91](http://OnurluKuran.com/10#91) "Çok geç! Daha önce başkaldırmış ve bozgunculardan olmuştun." 
+ 
+[Onurlu Kuran 10:92](http://OnurluKuran.com/10#92) "Senden sonraki kuşaklara ibret olman için bugün senin cesedini koruyacağız. Ne var ki insanların çoğunluğu işaretlerimizden habersizdirler." 
+ 
+[Onurlu Kuran 10:93](http://OnurluKuran.com/10#93) İsrailoğullarına onurlu bir yer bağışladık ve onlara güzel rızıklar verdik. Fakat, kendilerine ilim geldikten sonra ayrılığa düştüler. Efendin, diriliş günü, ayrılığa düştükleri konuda aralarında hüküm verecektir. 
+ 
+[Onurlu Kuran 10:94](http://OnurluKuran.com/10#94) Sana indirdiğimiz hakkında bir kuşkun varsa, kitabı önceden okumuş olanlara sor. Sana Efendinden gerçek gelmiş bulunuyor. Şüphecilerden olma. 
+ 
+[Onurlu Kuran 10:95](http://OnurluKuran.com/10#95) Sakın, TANRI’nın işaretlerini yalanlayanlardan olma. Yoksa kaybedenlerden olursun. 
+ 
+[Onurlu Kuran 10:96](http://OnurluKuran.com/10#96) Efendinin kararıyla mahkûm edilenler inanmazlar. 
+ 
+[Onurlu Kuran 10:97](http://OnurluKuran.com/10#97) Acı azabı görünceye kadar onlara her çeşit işaret gelse bile... 
+ 
+[Onurlu Kuran 10:98](http://OnurluKuran.com/10#98) İnanması kendine yarar vermeyen bir toplum olsaydı bile Yunus halkı onun istisnası olurdu. İnandıkları zaman, bu dünya hayatındaki aşağılayıcı azabı kendilerinden kaldırdık. Bir süreye kadar onları nimetlerle yaşattık. 
+ 
+[Onurlu Kuran 10:99](http://OnurluKuran.com/10#99) Efendin dileseydi, yeryüzündekilerin hepsi inanırdı. Öyleyse, sen mi insanları inanmaları için zorlayacaksın?
+
+[Onurlu Kuran 10:100](http://OnurluKuran.com/10#100) Hiçbir kişi TANRI’nın izni olmadan inanamaz ve O, akıllarını kullanmayanları rezilliğe mahkûm eder. 
+ 
+[Onurlu Kuran 10:101](http://OnurluKuran.com/10#101) De ki: "Göklerde ve yerde neler var, bir bakın! İnanmayan bir topluma deliller ve uyarılar kâr etmez." 
+ 
+[Onurlu Kuran 10:102](http://OnurluKuran.com/10#102) Kendilerinden öncekilerin yaşadığı günlerin bir benzerini mi bekliyorlar? De ki: "Bekleyin, ben de sizinle birlikte beklemekteyim." 
+ 
+[Onurlu Kuran 10:103](http://OnurluKuran.com/10#103) Sonunda elçilerimizi ve inananları kurtarırız. Evet, inananları kurtarmak bizim değişmez bir yasamızdır. 
+ 
+[Onurlu Kuran 10:104](http://OnurluKuran.com/10#104) De: "Ey insanlar, eğer dinimden kuşku içindeyseniz; artık etmiyorum kimselere kulluk ettiğiniz yanından ALLAH 'ın. Velakin Kulluk Ediyorum ALLAH'a Ki Vefat Ettirecek Sizi Ve Emredildim Olmaya İman Edenlerden!
+ 
+[Onurlu Kuran 10:105](http://OnurluKuran.com/10#105) Ve doğrult yüzünü dine hanif olarak ve olmaa müşriklerden.
+ 
+[Onurlu Kuran 10:106](http://OnurluKuran.com/10#106) "TANRI’yı bırakıp, sana yarar ve zarar veremeyenleri çağırma. Böyle yaparsan o zaman zalimlerden olursun." 
+ 
+[Onurlu Kuran 10:107](http://OnurluKuran.com/10#107) TANRI sana bir zarar dokundurursa O'ndan başka onu ortadan kaldıracak yoktur. Senin için bir iyilik dilerse de, O'nun lütfunu geri çevirecek yoktur. Kullarından dilediğine bunu verir. O, Bağışlayandır, Şefkatli’dir. 
+ 
+[Onurlu Kuran 10:108](http://OnurluKuran.com/10#108) De ki: "Ey insanlar, Efendinizden size gerçek gelmiş bulunuyor. Kim yola gelirse kendisi için yola gelmiş olur, kim de saparsa kendi zararına sapar. Ben sizden sorumlu değilim." 
+ 
+[Onurlu Kuran 10:109](http://OnurluKuran.com/10#109) Sana vahyedileni izle; TANRI hüküm verinceye kadar sabret. O, hüküm verenlerin en iyisidir.
+
+
+
+
+
+
+
+
+
