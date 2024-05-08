@@ -10,8 +10,7 @@ Impossible to [Imitate](https://www.youtube.com/watch?v=vX3riVsnzqA) !
 
 Over [Oku.FurkanHikmet.com](https://Oku.FurkanHikmet.com) is 19 ! ( [74:30](https://www.youtube.com/watch?v=vX3riVsnzqA) )
 
-![https://Oku.FurkanHikmet.com](./asa.jpg)
-
+[![https://Oku.FurkanHikmet.com](./asa.jpg)](https://Oku.FurkanHikmet.com)
 
 
 İŞTE 99 durumda 1/19^100 ‘den düşük ihtimalli 19 Mucizesi :
