@@ -10,6 +10,12 @@ Impossible to Imitate!
 
 Over [Oku.FurkanHikmet.com](https://Oku.FurkanHikmet.com) is 19 ! (74:30)
 
+
+
+![https://Oku.FurkanHikmet.com](./asa.jpg)
+
+
+
 İŞTE 99 durumda 1/19^100 ‘den düşük ihtimalli 19 Mucizesi :
 
 + : var
