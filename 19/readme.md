@@ -187,15 +187,15 @@ Sayfa 16 - Diriliş (zaten ilk 2 satır hiç n harfi içermiyor) > 570 Adet N Ha
 
 <hr></hr>
 
-TUFANDAN ÖNCE: -Ey Müdessir KALK VE UYAR!- "FURKAN HİKMET’İN ÜZERİNDE 19 VAR! & KIYAMET SAATİ!" [4K] > [youtu.be/0c9Z5YAGZn4](https://www.youtube.com/watch?v=0c9Z5YAGZn4)
+## TUFANDAN ÖNCE: -Ey Müdessir KALK VE [UYAR](https://www.youtube.com/watch?v=0c9Z5YAGZn4)!- "FURKAN HİKMET’İN ÜZERİNDE 19 VAR! & KIYAMET SAATİ!" [4K] > [youtu.be/0c9Z5YAGZn4](https://www.youtube.com/watch?v=0c9Z5YAGZn4)
 
-[Onurlu Kuran 11:13](http://OnurluKuran.com/11#13) "Onu o uydurdu" mu diyorlar? De : "Haydi ona benzer, uydurulmuş on sure getirin. ALLAH'tan başka tüm dostlarınızı da çağırın, doğru sözlülerseniz!"
+## [Onurlu Kuran 11:13](http://OnurluKuran.com/11#13) "Onu o uydurdu" mu diyorlar? De : "Haydi ona benzer, uydurulmuş on sure getirin. ALLAH'tan başka tüm dostlarınızı da çağırın, doğru sözlülerseniz!"
 
-[Onurlu Kuran 11:14](http://OnurluKuran.com/11#14) Size cevap veremedilerse bilesiniz ki o, ALLAH'ın bilgisiyle indirilmiştir ve O'ndan başka ilah yoktur. Artık Müslüman olacak mısınız?
+## [Onurlu Kuran 11:14](http://OnurluKuran.com/11#14) Size cevap veremedilerse bilesiniz ki o, ALLAH'ın bilgisiyle indirilmiştir ve O'ndan başka ilah yoktur. Artık Müslüman olacak mısınız?
 
 <hr></hr>
 
-[Onurlu Kuran 20:61](http://OnurluKuran.com/20#61) Dedi onlara Musa: “Vay size, uydurmayın ALLAH’a karşı yalan! Artık keser sizi azapla! Ve Kesinlikle heba olur iftira eden kimse!”
+## [Onurlu Kuran 20:61](http://OnurluKuran.com/20#61) Dedi onlara Musa: “Vay size, uydurmayın ALLAH’a karşı yalan! Artık keser sizi azapla! Ve Kesinlikle heba olur iftira eden kimse!”
 
 <hr></hr>
 
