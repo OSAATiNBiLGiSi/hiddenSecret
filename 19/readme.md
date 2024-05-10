@@ -189,6 +189,12 @@ Sayfa 16 - Diriliş (zaten ilk 2 satır hiç n harfi içermiyor) > 570 Adet N Ha
 
 [youtu.be/0c9Z5YAGZn4](https://www.youtube.com/watch?v=0c9Z5YAGZn4)
 
+11:13 "Onu o uydurdu" mu diyorlar? De : "Haydi ona benzer, uydurulmuş on sure getirin. ALLAH'tan başka tüm dostlarınızı da çağırın, doğru sözlülerseniz!"
+
+11:14 Size cevap veremedilerse bilesiniz ki o, ALLAH'ın bilgisiyle indirilmiştir ve O'ndan başka ilah yoktur. Artık Müslüman olacak mısınız?
+
+<hr></hr>
+
 [Onurlu Kuran 23:28](http://OnurluKuran.com/23#28) "Sen ve beraberindekiler gemiye yerleştiğinizde, ‘Bizi o zalim halktan kurtaran ALLAH'a övgüler olsun,' de."
 
 
