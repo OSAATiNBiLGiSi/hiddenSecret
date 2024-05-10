@@ -195,7 +195,7 @@ Sayfa 16 - Diriliş (zaten ilk 2 satır hiç n harfi içermiyor) > 570 Adet N Ha
 
 <hr></hr>
 
-20:61 Dedi onlara Musa: “Vay size, uydurmayın ALLAH’a karşı yalan! Artık keser sizi azapla! Ve Kesinlikle heba olur iftira eden kimse!”
+[Onurlu Kuran 20:61](http://OnurluKuran.com/20#61) Dedi onlara Musa: “Vay size, uydurmayın ALLAH’a karşı yalan! Artık keser sizi azapla! Ve Kesinlikle heba olur iftira eden kimse!”
 
 <hr></hr>
 
