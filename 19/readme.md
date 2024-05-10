@@ -197,6 +197,45 @@ Sayfa 16 - Diriliş (zaten ilk 2 satır hiç n harfi içermiyor) > 570 Adet N Ha
 
 ## [Onurlu Kuran 20:61](http://OnurluKuran.com/20#61) Dedi onlara Musa: “Vay size, uydurmayın ALLAH’a karşı yalan! Artık keser sizi azapla! Ve Kesinlikle heba olur iftira eden kimse!”
 
+## 76:27.
+Onlar acele olanı seviyorlar ve önlerindeki ağır günü arkalarında bırakıyorlar.
+
+اِنَّ هٰٓؤُ۬لَٓاءِ يُحِبُّونَ الْعَاجِلَةَ وَيَذَرُونَ وَرَٓاءَهُمْ يَوْماً ثَق۪يلاً
+
+İnne haulai yuhıbbunel acilete ve yezerune veraehum yevmen sekila.
+
+
+## 76:28.
+Onları Biz yarattık. Yaratılışlarını sapasağlam yaptık. Dilersek onları yok eder, yerlerine benzerlerini getiririz.
+
+نَحْنُ خَلَقْنَاهُمْ وَشَدَدْنَٓا اَسْرَهُمْۚ وَاِذَا شِئْنَا بَدَّلْـنَٓا اَمْثَالَهُمْ تَبْد۪يلاً
+
+Nahnu halaknahum ve şededna esrehum, ve iza şi'na beddelna emsalehum tebdila.
+
+
+## 76:29.
+Bu bir öğüttür. Artık dileyen onunla RABBİ'ne varan bir yol edinir.
+
+اِنَّ هٰذِه۪ تَذْكِرَةٌۚ فَمَنْ شَٓاءَ اتَّخَذَ اِلٰى رَبِّه۪ سَب۪يلاً
+
+İnne hazihi tezkireh, fe men şaettehaze ila rabbihi sebila.
+
+
+## 76:30.
+ALLAH dilemedikçe siz dileyemezsiniz. Kuşkusuz ALLAH, Her Şeyi Bilen'dir, En İyi Hüküm Veren'dir.
+
+وَمَا تَشَٓاؤُ۫نَ اِلَّٓا اَنْ يَشَٓاءَ اللّٰهُۜ اِنَّ اللّٰهَ كَانَ عَل۪يماً حَك۪يماًۗ
+
+Ve ma teşaune illa en yeşaallah, innallahe kane alimen hakima.
+
+
+## 76:31.
+Hak edeni rahmetine alır. Zalimler için ise acıklı bir azap hazırladı.
+
+يُدْخِلُ مَنْ يَشَٓاءُ ف۪ي رَحْمَتِه۪ۜ وَالظَّالِم۪ينَ اَعَدَّ لَهُمْ عَذَاباً اَل۪يماً
+
+Yudhilu men yeşau fi rahmetih, vez zalimine eadde lehum azaben elima.
+
 <hr></hr>
 
 [Onurlu Kuran 23:28](http://OnurluKuran.com/23#28) "Sen ve beraberindekiler gemiye yerleştiğinizde, ‘Bizi o zalim halktan kurtaran ALLAH'a övgüler olsun,' de."
