@@ -195,6 +195,10 @@ Sayfa 16 - Diriliş (zaten ilk 2 satır hiç n harfi içermiyor) > 570 Adet N Ha
 
 <hr></hr>
 
+20:61 Dedi onlara Musa: “Vay size, uydurmayın ALLAH’a karşı yalan! Artık keser sizi azapla! Ve Kesinlikle heba olur iftira eden kimse!”
+
+<hr></hr>
+
 [Onurlu Kuran 23:28](http://OnurluKuran.com/23#28) "Sen ve beraberindekiler gemiye yerleştiğinizde, ‘Bizi o zalim halktan kurtaran ALLAH'a övgüler olsun,' de."
 
 
