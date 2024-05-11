@@ -185,6 +185,10 @@ Sayfa 9 - Çınar (ilk 2 satır hariç) > 893 adet N Harfi İçerir Yani Tam 19 
 
 Sayfa 16 - Diriliş (zaten ilk 2 satır hiç n harfi içermiyor) > 570 Adet N Harfi İçerir Yani Tam 19 x 30 Tane !
 
+21:14- Kim de "vahye ortaktır" derse, o apaçık bir sapıklıktadır. 
+ 
+21:15- Artık insanların kalplerinin ürperme vakti, gelmedi mi?
+
 <hr></hr>
 
 ## TUFANDAN ÖNCE: -Ey Müdessir KALK VE [UYAR](https://www.youtube.com/watch?v=0c9Z5YAGZn4)!- "FURKAN HİKMET’İN ÜZERİNDE 19 VAR! & KIYAMET SAATİ!" [4K] > [youtu.be/0c9Z5YAGZn4](https://www.youtube.com/watch?v=0c9Z5YAGZn4)
