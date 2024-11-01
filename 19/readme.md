@@ -1,6 +1,4 @@
-Rahman ve Rahim olan ALLAH'ın Adıyla ;
-
-SUBHANALLAH! MAŞALLAH! LA KUVVETE İLLA BİLLAH! ELHAMDÜLİLLAH! ŞÜKÜRLER OLSUN ALLAH'A!
+RABİ EL KADUS'UN İSMİ'YLE;
 
 A Blessed [Scripture](https://Oku.FurkanHikmet.com) :
 
