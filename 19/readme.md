@@ -243,89 +243,89 @@ Yudhilu men yeşau fi rahmetih, vez zalimine eadde lehum azaben elima.
 [Onurlu Kuran 23:28](http://OnurluKuran.com/23#28) "Sen ve beraberindekiler gemiye yerleştiğinizde, ‘Bizi o zalim halktan kurtaran ALLAH'a övgüler olsun,' de."
 
 
-[Oku.FurkanHikmet.com/1](http://Oku.FurkanHikmet.com/1)
+[FurkanHikmet.com/1](http://FurkanHikmet.com/1)
 
 
-[Furkan Hikmet 1:7](http://Oku.FurkanHikmet.com/1#7)- O halde gemiyi yap, sana gelmiş olanın Nuh'a da geldiğinden ve Nuh’un yaptığı geminin, senin bildirdiğinden bir farkı yoktur. Nuh’a vahyettiğimiz, kuşkusuz senin içinde geçerlidir. Zalimler için Bana başvurma ve cahillerden olma!
+[Furkan Hikmet 1:7](http://FurkanHikmet.com/1#7)- O halde gemiyi yap, sana gelmiş olanın Nuh'a da geldiğinden ve Nuh’un yaptığı geminin, senin bildirdiğinden bir farkı yoktur. Nuh’a vahyettiğimiz, kuşkusuz senin içinde geçerlidir. Zalimler için Bana başvurma ve cahillerden olma!
 
 
-[Sayfa 1 - EMİR](http://Oku.FurkanHikmet.com/1)
+[Sayfa 1 - EMİR](http://FurkanHikmet.com/1)
  
 EMİR 
  
 Rahman ve Rahim olan ALLAH’ın adıyla; 
 
-[1](http://Oku.FurkanHikmet.com/1#1)- Hamd, ceza gününün Malikine, Selam’da seçkin kıldığı kullarınadır. 
+[1](http://FurkanHikmet.com/1#1)- Hamd, ceza gününün Malikine, Selam’da seçkin kıldığı kullarınadır. 
 
-[2](http://Oku.FurkanHikmet.com/1#2)- Hiç kuşkusuz sen, gönderilenlerdensin. 
+[2](http://FurkanHikmet.com/1#2)- Hiç kuşkusuz sen, gönderilenlerdensin. 
  
-[3](http://Oku.FurkanHikmet.com/1#3)- Doğru yol üzerindesin. 
+[3](http://FurkanHikmet.com/1#3)- Doğru yol üzerindesin. 
  
-[4](http://Oku.FurkanHikmet.com/1#4)- Yoldan çıkan topluluğu, azap’tan önce uyarmak ve ALLAH’ın yoluna ulaştırmak için gönderildin. 
+[4](http://FurkanHikmet.com/1#4)- Yoldan çıkan topluluğu, azap’tan önce uyarmak ve ALLAH’ın yoluna ulaştırmak için gönderildin. 
  
-[5](http://Oku.FurkanHikmet.com/1#5)- Azabın vakti yaklaşmadıkça, Rabbin içlerinden uyarması için birini gönderecek değildi. Ancak süresi tayin edilen o vakit, yakınlaştıkça yakınlaşmıştır. 
+[5](http://FurkanHikmet.com/1#5)- Azabın vakti yaklaşmadıkça, Rabbin içlerinden uyarması için birini gönderecek değildi. Ancak süresi tayin edilen o vakit, yakınlaştıkça yakınlaşmıştır. 
  
-[6](http://Oku.FurkanHikmet.com/1#6)- Her kişi için belirlenen bir süre olduğu gibi, her toplum için de belirlenen bir süre vardır. 
+[6](http://FurkanHikmet.com/1#6)- Her kişi için belirlenen bir süre olduğu gibi, her toplum için de belirlenen bir süre vardır. 
  
-[7](http://Oku.FurkanHikmet.com/1#7)- O halde gemiyi yap, sana gelmiş olanın Nuh'a da geldiğinden ve Nuh’un yaptığı geminin, senin bildirdiğinden bir farkı yoktur. Nuh’a vahyettiğimiz, kuşkusuz senin içinde geçerlidir. Zalimler için Bana başvurma ve cahillerden olma! 
+[7](http://FurkanHikmet.com/1#7)- O halde gemiyi yap, sana gelmiş olanın Nuh'a da geldiğinden ve Nuh’un yaptığı geminin, senin bildirdiğinden bir farkı yoktur. Nuh’a vahyettiğimiz, kuşkusuz senin içinde geçerlidir. Zalimler için Bana başvurma ve cahillerden olma! 
  
-[8](http://Oku.FurkanHikmet.com/1#8)- Kuşkusuz sana gelmeden önce, kitap nedir iman nedir bilmezdin. ALLAH, hidayet etmeseydi asla iman edeceklerden de değildin. Hamd, doğru yola eriştiren ALLAH’a dır. O, dilediğini seçer ve doğru yola eriştirir. 
+[8](http://FurkanHikmet.com/1#8)- Kuşkusuz sana gelmeden önce, kitap nedir iman nedir bilmezdin. ALLAH, hidayet etmeseydi asla iman edeceklerden de değildin. Hamd, doğru yola eriştiren ALLAH’a dır. O, dilediğini seçer ve doğru yola eriştirir. 
  
-[9](http://Oku.FurkanHikmet.com/1#9)- Sapkınlara gelince, onları ne sen saptırdın nede senin yaptıkların, ataları saptı ve kendilerinden sonra gelenleri de saptırdı.
+[9](http://FurkanHikmet.com/1#9)- Sapkınlara gelince, onları ne sen saptırdın nede senin yaptıkların, ataları saptı ve kendilerinden sonra gelenleri de saptırdı.
 
-[10](http://Oku.FurkanHikmet.com/1#10)- Kendisine doğru yol apaçık gelmişken, kendisine gerçek gelmişken, onu yalan sayandan ve kendisine gelen gerçekten yüz çevirenden daha zalim kimdir? 
+[10](http://FurkanHikmet.com/1#10)- Kendisine doğru yol apaçık gelmişken, kendisine gerçek gelmişken, onu yalan sayandan ve kendisine gelen gerçekten yüz çevirenden daha zalim kimdir? 
  
-[11](http://Oku.FurkanHikmet.com/1#11)- And olsun ki seni göndermeden önce azapla yakalamış olsaydık “Bize de bir uyarıcı gönderilseydi de, uyduğumuz yolun yanlış olduğunu anlasaydık ve ayetlerine iman etseydik Rabbimiz” derler ve kendilerine haksızlık edildiğini iddia ederlerdi. Rabbin, haksızlıktan münezzehtir, merhametlidir. 
+[11](http://FurkanHikmet.com/1#11)- And olsun ki seni göndermeden önce azapla yakalamış olsaydık “Bize de bir uyarıcı gönderilseydi de, uyduğumuz yolun yanlış olduğunu anlasaydık ve ayetlerine iman etseydik Rabbimiz” derler ve kendilerine haksızlık edildiğini iddia ederlerdi. Rabbin, haksızlıktan münezzehtir, merhametlidir. 
  
-[12](http://Oku.FurkanHikmet.com/1#12)- ALLAH kendisine ortak koşanları, başka ilahlar arayıp edinen kimseleri, doğru yola eriştirecek değildir. İnsanlar, bilgisizce ortak koşup dururlarken, nasıl doğru yola eriştirebilir? 
+[12](http://FurkanHikmet.com/1#12)- ALLAH kendisine ortak koşanları, başka ilahlar arayıp edinen kimseleri, doğru yola eriştirecek değildir. İnsanlar, bilgisizce ortak koşup dururlarken, nasıl doğru yola eriştirebilir? 
  
-[13](http://Oku.FurkanHikmet.com/1#13)- O, zalim de değildir, herkes ancak kendi yapıp ettiğinin cezasını çeksin istemiştir. Adil’dir. 
+[13](http://FurkanHikmet.com/1#13)- O, zalim de değildir, herkes ancak kendi yapıp ettiğinin cezasını çeksin istemiştir. Adil’dir. 
  
-[14](http://Oku.FurkanHikmet.com/1#14)- Doğrusu mükafat bakımından da ceza bakımından da Dünya hayatı, her türlü ekine hazır verimli bir toprak gibidir. 
+[14](http://FurkanHikmet.com/1#14)- Doğrusu mükafat bakımından da ceza bakımından da Dünya hayatı, her türlü ekine hazır verimli bir toprak gibidir. 
  
-[15](http://Oku.FurkanHikmet.com/1#15)- İyilik ekenler iyilik ve kötülük ekenler de ancak ektikleri kötülükleri biçeceklerdir. 
+[15](http://FurkanHikmet.com/1#15)- İyilik ekenler iyilik ve kötülük ekenler de ancak ektikleri kötülükleri biçeceklerdir. 
  
-[16](http://Oku.FurkanHikmet.com/1#16)- Vahyin ne olduğunu soracak olurlarsa, vahiy, Rabbin tarafından verilmiş olan bir ilim’dir, bilgidir. Rabbinin sevgisi, rahmeti ve lütfu çok geniştir. O, ilmini arttırır, öğretir. 
+[16](http://FurkanHikmet.com/1#16)- Vahyin ne olduğunu soracak olurlarsa, vahiy, Rabbin tarafından verilmiş olan bir ilim’dir, bilgidir. Rabbinin sevgisi, rahmeti ve lütfu çok geniştir. O, ilmini arttırır, öğretir. 
  
-[17](http://Oku.FurkanHikmet.com/1#17)- O, daima iyilikten ve güzellikten yana olan, suçlulardan ise adaletiyle intikam alandır. 
+[17](http://FurkanHikmet.com/1#17)- O, daima iyilikten ve güzellikten yana olan, suçlulardan ise adaletiyle intikam alandır. 
  
-[18](http://Oku.FurkanHikmet.com/1#18)- Rabbin, geceye de gündüze de tanıktır. O’nun azabı, zalimlerden uzak değildir. Her topluma içlerinden mutlaka bir uyarıcı göndermiştir. Her toplumda kendilerine gelen uyarıcıyı yalanlamıştır. Ama yalanlayanların sonu nasıl oldu bir bak! 
+[18](http://FurkanHikmet.com/1#18)- Rabbin, geceye de gündüze de tanıktır. O’nun azabı, zalimlerden uzak değildir. Her topluma içlerinden mutlaka bir uyarıcı göndermiştir. Her toplumda kendilerine gelen uyarıcıyı yalanlamıştır. Ama yalanlayanların sonu nasıl oldu bir bak! 
  
-[19](http://Oku.FurkanHikmet.com/1#19)- Geceyi izleyen gündüze yemin olsun ki, gönderilenler de, gönderdiklerimiz de, hesaba çekileceklerdir. 
+[19](http://FurkanHikmet.com/1#19)- Geceyi izleyen gündüze yemin olsun ki, gönderilenler de, gönderdiklerimiz de, hesaba çekileceklerdir. 
 
-[20](http://Oku.FurkanHikmet.com/1#20)- İnsanlara, Rableri katından hangi yeni uyarı gelmiş olmasın ki, alaya alıp yüz çevirmiş olmasınlar. O, her topluluğa içlerinden anlasınlar diye, kendi dillerin de bir uyarıcı seçip gönderendir. 
+[20](http://FurkanHikmet.com/1#20)- İnsanlara, Rableri katından hangi yeni uyarı gelmiş olmasın ki, alaya alıp yüz çevirmiş olmasınlar. O, her topluluğa içlerinden anlasınlar diye, kendi dillerin de bir uyarıcı seçip gönderendir. 
  
-[21](http://Oku.FurkanHikmet.com/1#21)- Resul’ünü, İslam’ı bütün dinlere üstün kılmak üzere gerçekle gönderen ALLAH’tır. O, Halim’dir. 
+[21](http://FurkanHikmet.com/1#21)- Resul’ünü, İslam’ı bütün dinlere üstün kılmak üzere gerçekle gönderen ALLAH’tır. O, Halim’dir. 
  
-[22](http://Oku.FurkanHikmet.com/1#22)- Gönderdiğine yapılan iyilik, O’na yapılmış sayılır. 
+[22](http://FurkanHikmet.com/1#22)- Gönderdiğine yapılan iyilik, O’na yapılmış sayılır. 
  
-[23](http://Oku.FurkanHikmet.com/1#23)- Gönderdiğine yapılan kötülük de O’na yapılmış sayılır. 
+[23](http://FurkanHikmet.com/1#23)- Gönderdiğine yapılan kötülük de O’na yapılmış sayılır. 
  
-[24](http://Oku.FurkanHikmet.com/1#24)- Gönderdiğine iman etmek, O’na iman etmektir, inkar etmek de O’nu inkar etmektir. 
+[24](http://FurkanHikmet.com/1#24)- Gönderdiğine iman etmek, O’na iman etmektir, inkar etmek de O’nu inkar etmektir. 
  
-[25](http://Oku.FurkanHikmet.com/1#25)- O’nun ne yapılan iyiliğe ne kötülüğe ne iman’a nede inkar’a bir ihtiyacı yoktur. Gani’dir. Bu, sadece bir denemedir. O’na ulaşan yaptıklarınız değil, takvanızdır. 
+[25](http://FurkanHikmet.com/1#25)- O’nun ne yapılan iyiliğe ne kötülüğe ne iman’a nede inkar’a bir ihtiyacı yoktur. Gani’dir. Bu, sadece bir denemedir. O’na ulaşan yaptıklarınız değil, takvanızdır. 
  
-[26](http://Oku.FurkanHikmet.com/1#26)- Bu, imtihanların en güzelidir. Mükafat bakımından da ceza bakımından da en yüksek payedir. 
+[26](http://FurkanHikmet.com/1#26)- Bu, imtihanların en güzelidir. Mükafat bakımından da ceza bakımından da en yüksek payedir. 
  
-[27](http://Oku.FurkanHikmet.com/1#27)- Kuşkusuz O, her şeyden çok iyi haberdar olan, kullarının yaptıklarını çok iyi bilen ve çok iyi görüp gözetendir. O, sana da, senden öncekilere de böyle vahyetmiştir. 
+[27](http://FurkanHikmet.com/1#27)- Kuşkusuz O, her şeyden çok iyi haberdar olan, kullarının yaptıklarını çok iyi bilen ve çok iyi görüp gözetendir. O, sana da, senden öncekilere de böyle vahyetmiştir. 
  
-[28](http://Oku.FurkanHikmet.com/1#28)- İşte bunlar, sana verilen kitabın hikmetli sahifeleridir. 
+[28](http://FurkanHikmet.com/1#28)- İşte bunlar, sana verilen kitabın hikmetli sahifeleridir. 
  
-[29](http://Oku.FurkanHikmet.com/1#29)- Ey İnsanlar! Hepinizin Rabbi, yerleri, gökleri ve ikisi arasında bulunanları yaratan ALLAH’tır.
+[29](http://FurkanHikmet.com/1#29)- Ey İnsanlar! Hepinizin Rabbi, yerleri, gökleri ve ikisi arasında bulunanları yaratan ALLAH’tır.
 
-[30](http://Oku.FurkanHikmet.com/1#30)- Gerçek, ALLAH’tan gelendir. Kim O’nun indirdiği gerçeklerin dışındakini din edinmişse, and olsun ki ALLAH’tan başka ilah edinmiştir. Hepinizin Rabbi, bir’dir, tek’tir. 
+[30](http://FurkanHikmet.com/1#30)- Gerçek, ALLAH’tan gelendir. Kim O’nun indirdiği gerçeklerin dışındakini din edinmişse, and olsun ki ALLAH’tan başka ilah edinmiştir. Hepinizin Rabbi, bir’dir, tek’tir. 
  
-[31](http://Oku.FurkanHikmet.com/1#31)- Din’e uymanızı emreden ALLAH’tır. O, tek bir İlah’tır. 
+[31](http://FurkanHikmet.com/1#31)- Din’e uymanızı emreden ALLAH’tır. O, tek bir İlah’tır. 
  
-[32](http://Oku.FurkanHikmet.com/1#32)- Din, yalnız ALLAH’ın indirdiğidir. Geri kalanı uydurmadır, sapıklıktır. 
+[32](http://FurkanHikmet.com/1#32)- Din, yalnız ALLAH’ın indirdiğidir. Geri kalanı uydurmadır, sapıklıktır. 
  
-[33](http://Oku.FurkanHikmet.com/1#33)- Baldırların açılıp korkudan dizlerin birbirine karışıp titreyeceği gün, baba oğlunu, oğul da babasını tanımayacaktır. O gün, oğul baba’yı ve baba’da oğlu suçlayacaktır. Liderler toplumlarını, toplumlar liderlerini, puta tapanlar taptıkları putlarını ve putlar da kendilerine tapanları suçlayacaktır. 
+[33](http://FurkanHikmet.com/1#33)- Baldırların açılıp korkudan dizlerin birbirine karışıp titreyeceği gün, baba oğlunu, oğul da babasını tanımayacaktır. O gün, oğul baba’yı ve baba’da oğlu suçlayacaktır. Liderler toplumlarını, toplumlar liderlerini, puta tapanlar taptıkları putlarını ve putlar da kendilerine tapanları suçlayacaktır. 
  
-[34](http://Oku.FurkanHikmet.com/1#34)- O halde siz, yalnız Rabbinizden size indirilene uyun ve yalnız ALLAH’a güvenip dayanmış olarak huzura gelin. İnananlar, yalnız tek ALLAH’a güvenip dayananlardır.
+[34](http://FurkanHikmet.com/1#34)- O halde siz, yalnız Rabbinizden size indirilene uyun ve yalnız ALLAH’a güvenip dayanmış olarak huzura gelin. İnananlar, yalnız tek ALLAH’a güvenip dayananlardır.
 
-[35](http://Oku.FurkanHikmet.com/1#35)- ALLAH, size şefaatçi olarak da, dost olarak da, yardımcı olarak da fazlasıyla yeterlidir. O, her türlü noksanlıktan münezzehtir. 
+[35](http://FurkanHikmet.com/1#35)- ALLAH, size şefaatçi olarak da, dost olarak da, yardımcı olarak da fazlasıyla yeterlidir. O, her türlü noksanlıktan münezzehtir. 
  
-[36](http://Oku.FurkanHikmet.com/1#36)- ALLAH buyurdu “Ben onlara çok yakınım. Bana dua ettiği vakit, dua edenin dileğine karşılık veririm. O halde Benim davetime uysunlar ve Bana inansınlar ki doğru yolu bulsunlar.”
+[36](http://FurkanHikmet.com/1#36)- ALLAH buyurdu “Ben onlara çok yakınım. Bana dua ettiği vakit, dua edenin dileğine karşılık veririm. O halde Benim davetime uysunlar ve Bana inansınlar ki doğru yolu bulsunlar.”
 
 
 
