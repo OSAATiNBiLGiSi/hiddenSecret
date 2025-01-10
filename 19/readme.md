@@ -1,4 +1,4 @@
-RABİ EL KADUS'UN İSMİ'YLE;
+EL KADUS'UN İSMİ'YLE;
 
 A Blessed [Scripture](https://Oku.FurkanHikmet.com) :
 
