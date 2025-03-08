@@ -1,4 +1,4 @@
-EL KADUS'UN İSMİ'YLE;
+O SAAT'İN İSMİ'YLE;
 
 A Blessed [Scripture](https://Oku.FurkanHikmet.com) :
 
